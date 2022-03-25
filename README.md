@@ -1,2 +1,0 @@
-# royality
-Only for friends 
